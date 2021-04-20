@@ -1,4 +1,5 @@
-# VPS Mining
+# VPS NEW UPDATE PRICE
+2021
 
 **PAY VIA DOGECOIN**
 
